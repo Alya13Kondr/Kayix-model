@@ -1,1 +1,1 @@
-# Kayix-model
+Rules: no resale 
